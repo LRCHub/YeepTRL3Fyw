@@ -1,0 +1,79 @@
+# KAT-TUN – SIGNAL
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Hey girl 教えて どんな夢見て
+一人ぼっち 夜明け待ったの?
+Hey boy 人ごみに
+隠れてもしょーがない
+ありふれた常識 この街じゃ非常識
+Take it easy now
+What’s goin’ on 切り替えて
+What’s goin’ on 乗り越えて
+I’m movin’ on
+いつもそうしてんじゃない
+Take it easy now
+What’s goin’ on チカチカと
+Just movin’ on 消えそうな
+情熱は それぞれの胸に
+癒されちゃ もの足りない...
+頑張るだけじゃ 救われない...
+きまじめ過ぎても
+望む場所に立てない...
+瞬間を永遠に 心で切り取って
+恐れずにトラブルに
+ダイブしてみろ
+Life goes on!
+Take it easy now
+What’s goin’ on 切り替えて
+What’s goin’ on 乗り越えて
+I’m movin’ on
+いつもそうしてんじゃない
+Take it easy now
+What’s goin’ on チカチカと
+Just movin’ on 消えそうな
+情熱は それぞれの胸に
+Take it easy now
+What’s goin’ on しなやかに
+What’s goin’ on したたかに
+I’m movin’ on
+みんな生きてるんじゃない
+Take it easy now
+What’s goin’ on わがままに
+Just movin’ on 危うげに
+俺たちは
+今日も生きてるんじゃない
+My girl ここへ おいで
+ほら Yeah
+Your heart 決して ひとりじゃない
+話してごらん
+飛び交う電波 鳴り止まぬ電話
+どこもかしこも一度見たMember
+行き場もなくて 『独り』怖くて
+沈めてく自分 喧騒の中に
+目的もなくたむろするEveryday
+だけど何も見付からぬAny day
+心配すんじゃねぇ We are all the
+same
+お前らみんな秘めたPossibility
+Take it easy now
+What’s goin’ on 切り替えて
+What’s goin’ on 乗り越えて
+I’m movin’ on
+いつもそうしてんじゃない
+Take it easy now
+What’s goin’ on チカチカと
+Just movin’ on 消えそうな
+情熱は それぞれの胸に
+Take it easy now
+What’s goin’ on しなやかに
+What’s goin’ on したたかに
+I’m movin’ on
+みんな生きてるんじゃない
+Take it easy now
+What’s goin’ on わがままに
+Just movin’ on 危うげに
+俺たちは
+今日も生きてるんじゃない
+```
